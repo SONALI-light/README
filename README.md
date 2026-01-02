@@ -58,7 +58,7 @@ This GitHub profile is organized around the following areas:
 ---
 
 ## 📫 Contact
-- LinkedIn: *(add later)*  
-- Email: *(optional)*  
+- LinkedIn: *www.linkedin.com/in/nagah-hassan*  
+- Email: *nagah.rabietaher@gmail.com*  
 
 Thanks for visiting 🌱
